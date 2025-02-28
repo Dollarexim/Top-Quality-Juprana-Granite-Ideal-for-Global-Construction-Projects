@@ -1,0 +1,2 @@
+# Top-Quality-Juprana-Granite-Ideal-for-Global-Construction-Projects
+Juprana Granite is a premium natural stone featuring deep blue and gray hues with intricate patterns. Highly durable and resistant to heat, scratches, and stains, it’s perfect for countertops, flooring, facades, and architectural applications. Sourced from India's top quarries, DollarExim ensures expert cutting, polishing, secure packaging.
